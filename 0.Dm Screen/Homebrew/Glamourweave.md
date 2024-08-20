@@ -1,1 +1,0 @@
-![[Glamourweave.pdf]]

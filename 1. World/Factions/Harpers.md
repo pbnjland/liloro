@@ -1,1 +1,0 @@
-![Exported image](Exported%20image%2020240725171659-0.octet-stream)

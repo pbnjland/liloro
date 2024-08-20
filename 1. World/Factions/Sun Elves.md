@@ -1,4 +1,0 @@
-![Exported image](Exported%20image%2020240725171652-0.octet-stream)
-     
-The **sun elves**, also sometimes known as **gold elves**, sometimes as **high elves** due to their stereotypically elitist ways, and **Ar-tel-quessir**==[5]== in their ==own language== were a subrace of ==high elves== historically rare in ==Faerûn== due to the ==Retreat==, in which the majority abandoned the continent for ==Evermeet==, although during the ==Era of Upheaval== they began returning to the mainland. Haughty and arrogant, sun elves typically felt themselves superior to most other races, including other ==Tel-quessir==.==[6]==
- > From <[https://forgottenrealms.fandom.com/wiki/Sun_elf](https://forgottenrealms.fandom.com/wiki/Sun_elf)>

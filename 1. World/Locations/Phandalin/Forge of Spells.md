@@ -1,8 +1,0 @@
-![Exported image](Exported%20image%2020240725171647-0.octet-stream)
-    
-The spellforge isn't just some minor artifact, but capable of reactivating the spellplague of 100 years ago. Close the the end, the Black Spider starts reactivating the spellforge, causing areas around the sword coast to make magic wild and unpredictable, mutating creatures, and causing general mayhem, my favorite of which being that the green dragon of Thundertree was mutated into a giant spider/dragon hybrid.
- 
-The Forge of Spells makes creating multiple magic items easy. Instead of enchanting the already made weapon (as per traditional magical crafting), In the Forge of Spells, you enchant the molten metal instead. Then, all you have to do is forge the weapon and once tempered and cooled, the weapon has the properties of the enchantment.  
-For example: let's say you (an incredibly powerful wizard) enchanted a big vat of molten metal in the Forge of Spells so it imbues a +1 to hit and damage. The enchanted metal is then forged into weapons. Now you just craft the swords, daggers, spear points, or arrow heads as you need. This way, you don't need to enchant every weapon individually allowing you to create a factory of sorts.  
-This method of mass producing magical items is only possible because of the special properties of the Forge of Spells.
- > From <[https://www.reddit.com/r/LostMinesOfPhandelver/comments/vpn2d5/lost_mine_of_phandelver_what_the_heck_is_the/](https://www.reddit.com/r/LostMinesOfPhandelver/comments/vpn2d5/lost_mine_of_phandelver_what_the_heck_is_the/)>

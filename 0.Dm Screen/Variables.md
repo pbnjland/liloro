@@ -1,5 +1,0 @@
----
-Inventory:
-	General: Goods
----
-
